@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Dheeraj Lellala
-**A passionate Software Engnieer**
+**A passionate Software Engineer**
 
 Email Me 👉 ✉️ **lellaladheeraj36@gmail.com.com** 😊😊
 
